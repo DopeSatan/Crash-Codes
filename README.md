@@ -9,8 +9,7 @@ Powerful codes that will crash Whatsapp, Telegram, Instagram etc when sent via m
 To farther know how to use these codes and files you can refer to this [Youtube Video](https://youtu.be/X3uGa0Qddtk) by the channel Undercode Testing Company. Also all the credit goes to [UTC](https://undercode.help) for the crash code collection. You can donate Undercode Testing Company or the UTC with Bitcoins in the following address: **1FBPoRY8xcD373wA5MuiuMy3pwgqeFsnbk**. You can download the crash codes collection by clicking the button below: <br>
 
 <a href="https://github.com/DopeSatan/Crash-Codes/raw/master/Crash%20Codes%20Collection.zip">
-<img src="https://lh3.googleusercontent.com/-IJZuEYk4FQg/YJRSfaSP90I/AAAAAAAAgtg/ykZyNxtzjVkqDpKAbgeeCBTHs2i7IJSxgCLcBGAsYHQ/s16000/Webp.net-resizeimage%2B%25284%2529.png"
-alt="Crash Codes Collection Download Link"></a><br><br>
+<img src="https://bit.ly/3Ee49cs" alt="Crash Codes Collection Download Link"></a><br><br>
 
 > ## DISCLAIMER:
 > **No one will be liable and will not become responsible for<br>
